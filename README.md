@@ -1,0 +1,1 @@
+# MEN Ergashev shohrux O'zbekiston Samarqand shaharida codeschoolda uqiyman.
